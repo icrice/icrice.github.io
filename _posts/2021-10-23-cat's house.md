@@ -18,3 +18,6 @@ Luckily,I have a chance to feed them:
 
 Small cats were likely to be more vivid.
 
+I take it over on my thigh when it is sleeping.
+
+![猫在睡觉.png](https://i.loli.net/2021/10/23/b7ZtS38Vjny9egP.png)
